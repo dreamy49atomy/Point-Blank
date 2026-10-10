@@ -216,4 +216,4 @@ Point Blank is available as a full free version, with all features and updates i
 **Download Point Blank today and join the thrilling battle between Free Rebels and CT-Force! Experience the excitement of tactical FPS gameplay and immerse yourself in an action-packed gaming experience!**
 
 ---
-**Last updated:** 2026-10-09 20:48:31 UTC
+**Last updated:** 2026-10-10 00:38:11 UTC
